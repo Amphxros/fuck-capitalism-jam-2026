@@ -1,0 +1,1 @@
+# fuck-capitalism-jam-2026
